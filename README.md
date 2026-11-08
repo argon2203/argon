@@ -406,11 +406,11 @@ My current focus is developing practical projects while expanding my knowledge a
 
 **GitHub**
 
-https://github.com/aaryan2203
+https://github.com/argon2203
 
 **LinkedIn**
 
-https://linkedin.com/in/aaryan2203
+https://linkedin.com/in/argon2203
 
 **Instagram**
 
